@@ -1,2 +1,0 @@
-# jongnamPortfolio
-짜잔
